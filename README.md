@@ -1,2 +1,0 @@
-# Qurban
-QURBAN AHMED SOMRO
